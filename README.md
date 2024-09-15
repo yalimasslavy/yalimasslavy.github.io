@@ -1,1 +1,0 @@
-# yalimasslavy.github.io
